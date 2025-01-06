@@ -38,5 +38,5 @@ While the motive behind the attack remains unclear, several theories have emerge
 
 ---
 
-This horrific incident marks one of the most devastating attacks in the U.S. on New Year’s Day, forever altering the lives of the victims and the city of New Orleans.[Read More](https://thealliancerockband.com/shamsud-din-jabbar-parents-mixed-ethnicity/)
+This horrific incident marks one of the most devastating attacks in the U.S. on New Year’s Day, forever altering the lives of the victims and the city of New Orleans.[Read More](https://www.pinterest.com/pin/911978993291624476/)
 
